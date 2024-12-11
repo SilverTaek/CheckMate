@@ -44,7 +44,6 @@
 
 한국어 회화는 잘하지만 과제를 위한 작문에 어려움을 겪는 외국인 유학생
 ### 페르소나 : 한국 유학 3년차, 대만출신 유홍빈 님
-<img src="https://user-images.githubusercontent.com/48380687/115805409-e18d3000-a41f-11eb-88e2-d74bdb9e207b.png" width=720 />
 <br><br>
 
 
